@@ -1,1 +1,1 @@
-# thecorruptive.github.io
+# thecorruptive.com
